@@ -1,0 +1,2 @@
+# mangala
+oyunnum çok güzel 
